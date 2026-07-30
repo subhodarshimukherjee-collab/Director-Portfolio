@@ -1,0 +1,1 @@
+Replace placeholder images and contact details.
